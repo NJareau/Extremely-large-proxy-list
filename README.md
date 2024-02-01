@@ -1,2 +1,2 @@
 # Extremely-large-proxy-list
-Heres like 20k proxy links, thank me later.
+Heres like 20k unblocker links, thank me later.
